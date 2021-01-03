@@ -1,2 +1,0 @@
-Govno+piska
-GOVNO
